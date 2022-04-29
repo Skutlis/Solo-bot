@@ -1,1 +1,1 @@
-"#Solo-bot" 
+SOLOBOT!
